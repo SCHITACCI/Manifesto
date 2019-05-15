@@ -1,0 +1,10 @@
+# Manifest
+My public life manifesto
+
+
+Pokud se ptám sám sebe, co chci dělat ve svém životě, je to vytváření utopií.
+Tento úděl nezní tak šíleně, pokud si přiznám, že prožívám utopii minulosti.
+I v budoucích utopiích budou lidé snít o svých vlastních a budou se jim zdát nedosažitelné.
+Chci propojovat součastnost s utopickou představou.
+Naučit se jak čerpat, transformovat a propojovat informace.
+Žit podobně jako včely, které vedlejším účinkem opylují rostliny a spoluvytváří nové verze prostředí.

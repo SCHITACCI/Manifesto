@@ -1,6 +1,4 @@
-# Manifest
-My public life manifesto
-
+# My public life manifesto
 
 Pokud se ptám sám sebe, co chci dělat ve svém životě, je to vytváření utopií.
 Tento úděl nezní tak šíleně, pokud si přiznám, že prožívám utopii minulosti.
